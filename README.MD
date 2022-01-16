@@ -1,2 +1,2 @@
 # cos tam
-asdsadasd
+to jest na galezi Marcin
